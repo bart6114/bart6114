@@ -7,7 +7,7 @@ Mostly dad of three. Often founder of [Dataroots](https://dataroots.io).  Someti
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;💌 [professional mail](mailto:bart@dataroots.io)   
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;🧳 [LinkedIn](https://www.linkedin.com/in/bartsmeets/)   
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;💿 [dataroots](https://dataroots.io)   
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;🥷 [mastodon](https://fosstodon.org/@bart6114)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;🥷 [mastodon](https://fosstodon.org/@bart6114)   
 😄 Pronouns: he/him  
 🧀 Cheese: YAS.
 
